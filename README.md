@@ -114,7 +114,7 @@ skill-swap/
  [[sameekshakumar03@gmail.com](mailto:sameekshakumar03@gmail.com)]
 
  **<Sejal Siddapuram>**
- 
+ [[sejal.siddapuram@gmail.com](mailto:sejal.siddapuram@gmail.com)]
 
 ---
 
